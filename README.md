@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Vijay-15-web
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning computer applications
+- i am a student
